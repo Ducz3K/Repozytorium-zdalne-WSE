@@ -1,1 +1,1 @@
-# Repozytorium-zdalne-WSE
+Łukasz Dudicz
